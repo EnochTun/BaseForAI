@@ -1,0 +1,3 @@
+# Quyền hạn
+## Ý nghĩa
+
